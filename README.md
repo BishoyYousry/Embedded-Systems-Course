@@ -32,6 +32,6 @@
 
 - Bishoy yousry 
   [LinkedIn](https://www.linkedin.com/in/bishoy-yousry/)
-- Zeyad Mohammed 
+- Zeyad Mohamed
   [LinkedIn](https://www.linkedin.com/search/results/all/?heroEntityKey=urn%3Ali%3Afsd_profile%3AACoAAC9SoBcB3ikvRTlnYoMynKldxtkebHOLPQs&keywords=zeyad%20mohamed&origin=RICH_QUERY_SUGGESTION&position=0&searchId=45ce8f20-c639-40f8-a989-f12b73f49b88&sid=f6n)
 
